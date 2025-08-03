@@ -1,295 +1,291 @@
-
-### WEBSITE SELECTION / AWARDS
-https://onepagelove.com/
-http://www.awwwards.com/  
-http://www.cssdesignawards.com/  
-http://www.thefwa.com/  
-http://www.csswinner.com/  
-http://www.webbyawards.com/  
-https://www.csslight.com
-http://cssreel.com
-http://ux-design-awards.com/  
-http://www.lesappawards.fr/  
-http://freshdesign.io  
-http://www.uxdesigner.top  
-
-### The most beautifull websites
-http://dragone.com/en
-https://thevanishinggame.wellstoried.com/
-http://www.jesuisunicq.com/
-https://kadk.dk/en/kadk
-https://mvmt.org/#
-http://drurybuildings.com/
-http://calligraphyongirls.com/
-http://christmasexperiments.com
-http://listart.mit.edu/
-http://huppe-studio.com  *****
-http://melanie-f.com
-http://mabeat.tv   *******
-http://www.echoesoftsunami.com/
-http://gifmylive.arte.tv/fr
-http://www.freresdencre.com/
-http://www.acnplwgl.com/#!/worm-kinematics
-http://www.galvanmobili.it
-http://www.lubiam.it/
-http://www.trippeo.com/
-http://melanie-f.com/fr/
-http://www.lapierrequitourne.com/
-http://www.trippeo.com/
-https://www.airbnb.fr/map
-http://www.mathiassterner.com/about
-http://vo2-group.com
-http://fitness.reebok.fr/be-more-human/#/home
-http://moodboard-film.de/
-http://mattbarnesenterprises.com/
-http://www.themarmalade.com/
-http://www.kroyyork.ru/
-http://moodboard-film.de/
-http://www.hellothierry.com/
-http://houseofborel.com/#/
-http://urban-walks.com/#slides   >> CALL TO ACTION
-http://www.masitupungato.com/
-http://odkryj.bialystok.pl/pl
-https://inbeeld.kpn.com/mrt-2015/cover
-http://level-barvikha.ru/en/
-http://www.anakin.co/en
-https://getbeagle.co/
-http://www.etq-amsterdam.com/
-http://www.relayme.be/
-http://www.lamourfou.be/fr
-http://canvas.grolsch.com/400
-http://golfman.ashworthgolf.com/bandon/approach
-http://letempsduntrajet.fr/
-http://typetodesign.com/
-http://typo.polona.pl/en/
-http://www.winshipwealth.com/#winship-offices   < 7.5
-http://www.peuterey.it/     < 7.5
-http://education.laglaceetleciel.com/   >8.4
-http://www.alessandradetomaso.com/
-http://aiaiai.dk/               jolie cadre dark
-http://www.panic.lv/en/     layout incliné
-http://www.tryit-youmightlikeit.co.uk/    button enter border anim + pick up date of brith
-http://www.habib-fadel.com   gallerie peinture artiste
-http://epicmagazine.com/arab-spring-break/
-http://dansmonsac.ca/   < sac meuf contre sida
-http://www.josephaavoue.com
-http://www.palzileri.com/              <7.9
-http://mountain.quechua.com/lookbook-spring-summer-15/                    < 7.9
-http://www.cameronsworld.net/             <7.9
-http://blog.hubspot.com/marketing/best-website-designs-list
-https://spotify-tasterewind.com/ < 7.4
-adwyse.de
-http://www.mugakofestival.com
-innerspacevr.com/  7.5
-http://www.kikk.be/2015 7.5
-http://www.palzileri.com/
-http://weareroyale.com/#/
-http://mightynice.com.au
-http://newheights.longwoodgardens.org/#/ <7.5
-http://www.62models.com/  <7.5
-http://bigbangthemes.net/Wordie_WP/
-http://www.onthegrid.city/
-http://www.62models.com/
-www.johos.at    << 7.6
-http://codedoodl.es/ > 7.5
-http://www.revolution.pn/
-http://www.mrassociates.org/
-http://www.stand4humanrights.com/
-www.carandache.com
-http://www.lnknits.com/
-http://kotelett.info/   ***
-http://ovgrealestate.com/
-http://www.volkswagen-touran.fr/
-http://www.citco.it/
-http://azmilano.com/
-http://www.orchestredeparis.com/ 8.4
-http://www.dairyculture.ru/  7.5
-http://theforecaster-interactive.com/tour/  7.5
-http://bartaile.com/ 7.5
-http://enso.readymag.com/architects-own-houses/11/  8.23
-baconclubhouse.no/en   7.5
-http://acme-world.com/   slow scroll + good style
-http://www.because-recollection.com/   9.5
-http://itsashapechristmas.co.uk/
-http://www.wloks.com/
-http://poc-sculpture.com/
-www.controlfilms.tv/
-http://onirim.com/   VOLET  DEFILEMENT ECRAN
-https://centurion-magazine.com/ jolie 
-http://2016.makemepulse.com/ ANIMATION MAGNIFIQUE
-http://www.beoplay.com/portraits#Intro  SPA AVEC PARALLAX
-http://www.exo-skills.com/  INSPIRATION
-http://www.shiftbrain.co.jp/   9
-http://www.pygmy-elephant.com/
-http://springsummer.dk
-http://www.sevenhillswholefoods.com/
-https://activetheory.net/ SNAP SCROLL REBOND
-http://www.majorsavage.com/ svg animation
-http://www.giovannixu.com/ PERFECT PORTFOLIO FOR PEGLT
-http://www.samsung.com/us/explore/gear-vr/ GEAR VR ZOOM
-https://spotify-valentines.com
-http://checklandkindleysides.com/
-http://dada-data.net/fr/
-http://www.magazine-mint.fr/
-http://warsze.polin.pl
-http://www.visithumboldt.com
-https://www.ifly50.com  8 GALLERY PHOTO
-http://sound-of-change.com/  8.5
-http://thelawofthejungle.com/
-http://falter.madebywild.com/ 8.5
-http://www.studiomarani.it/en/ 8
-http://www.adidas.co.uk/climazone (tout en bas layout 3 colonne dynamique)
-http://saintepaix.com/   barre vertical et horizontale (style LS)
-http://www.melville-design.com/	animation parallax
-http://ony-france.com/ slide collection vetement
-
-
-### UX/DIGITAL PROFESIONNAL
-http://blogdummi.fr/developpement/15-sites-agences-web-de-reve/
-
-http://bonnemarque.se/#
-http://engzell.me/info/
-http://www.sa-studio.fr/
-http://chulakov.com/
-http://www.konform.com/
-http://www.aquest.it/
-http://hellomonday.com/
-http://digitalisations.com/
-http://residence-mixte.com/
-http://www.lahautesociete.com/
-http://www.badassembly.com/
-http://www.designeat.com
-http://www.stash.fr/
-http://talkpr.com/
-http://www.timbrack.de/
-http://mashvp.com/    <>>> TOULOUSE
-http://www.clicky.co.uk/
-http://www.adoratorio.com/
-http://www.burn
-.com/ ******************** SIMPLE DESIGN AGENCY
-http://fixedagency.com
-http://www.basicagency.com/
-http://www.creativestyle.de/
-http://www.ninesixty.co.uk/
-http://studiokraftwerk.com/
-http://spacejunk.com/
-http://locomotive.ca/ *********************
-http://www.jonathandacosta.com
-http://www.tonyui.com/
-http://www.blank.io/
-http://hellomonday.com/
-http://www.ilovemy.de/
-http://www.lab21.gr/
-http://humaan.com/
-http://mustafademirkent.com/
-http://madhankumar.me/
-http://republiqueagency.com/index-eng.html    *****************************
-http://www.pushhere.com/      
-       *******************
-http://www.borngroup.com/
-http://www.mobydigg.de
-http://neverbland.com
-http://www.ninesixty.co.uk/
-http://laser.nyc/
-http://www.littlegiant.co.nz/
-http://www.impossible-bureau.com/
-http://drygital.com/
-http://www.mapcommunication.it
-http://fueled.com
-http://robinjeanney.fr/
-http://www.rollstudio.co.uk/
-http://www.aquest.it/
-http://readysetrocket.com/
-http://brightbyte.co.uk
-http://rhythm.bestlooker.pro/
-http://urbaninfluence.com/
-http://kasperlaigaard.com/
-http://www.timbrack.de/
-http://www.mathiassterner.com/
-http://ayamflow.fr/
-http://melaniedaveid.com/
-http://demodern.com/
-http://www.wax-interactive.com/
-http://vaalentin.github.io/2015/
-http://melaniedaveid.com/
-http://www.cpbgroup.com
-https://www.digitaweb.com/
-http://www.ekito.fr/  TLSE
-http://legraphoir.com/
-https://diegoquintana.com/en
-http://flavinsky.com/home  
-http://w-v.co/  
-http://simonfosterdesign.com/home/  
-http://www.taradash.ru  
-http://www.duhaihang.com  
-http://www.andreysoloviev.net  WEB DESIGN  
-http://brianhoffdesign.com  
-http://svla.co  
-http://www.florianwacker.de/en/  
-http://www.vanschneider.com/  
-http://www.werkstatt.fr/#/home     < 7.9 atelier  
-http://antonandirene.com/     < 7.8  
-http://www.paulineosmont.com/   < 7.5 source propre  
-http://www.nicolastarier.com/  < 7.5 source propre  
-http://www.petarstojakovic.net/    < 8 don't be lazy and make your sh.t happen! but being one step ahead of the curve at all times  
-http://www.blkcnd.com/ < 7.2  
-http://www.legworkstudio.com <7.8  
-http://activetheory.net < layout incliné  
-http://thisisdk.com  
-http://www.evb.com/  
-http://maximecostes.fr/    
-http://weareroyale.com/#/ **** SVG ANIM  
-http://www.fixedgroup.com/  
-http://www.webydo.com/   8.18  
-http://www.indicius.com/  
-http://www.signesduquotidien.org/  <7.5  
-http://panache.fr/  
-http://pollenlondon.com/  
-http://www.thenerodesign.com/ 7.5 LOVE  
-http://www.greenwoodcampbell.com/ AGENCY  
-http://www.deutser.com/services  AGENCY 
-http://www.sweetpunk.com/  
-http://www.julienrenvoye.fr/  
-http://nlee.ru/en/  
-http://riccardomarconato.it/about   8 JAIME  
-https://dpdk.com/  
-http://www.junior.io/  
-http://ueno.co/  
-http://redcollar.digital/  
-http://minnim.tv/en  
-http://lagier-kevin.com/#!/  8 IMPRESSIONANT  
-http://stevenmengin.com/ 8 OPEN GL EXAMPLE  
-http://samsy.ninja/ 8 OPEN GL + A SUIVRE  
-http://sonorans-valley.com/ A TESTER  
-https://studiorotate.com/ 8.5 A TEST  
-http://www.hochburg.net/en/ 8  A TEST  
-http://www.nurturedigital.com/ A TEST  
-http://www.poigneedemainvirile.com/  
-http://hengpatrick.fr/  HETIC/CANVAS/WEBGL  
-http://robinmastromarino.com/ HETIC/CANVAS/WEBGL/VUEJS/PIXIJS (STYLE MENUSLIDER)  
-http://www.fcinq.com/  
-http://bundy.madebywild.com/ 9  
-http://xavierbourdil.com/ 8  
-http://www.patriciablanchet.com/ 8  
-https://cavalierchallenge.com/  
-http://www.plasticbcn.com/  
-http://maevabarriere.com/  
-http://pro.boombotix.com/  
-http://resn.co.nz/#			9 PSYCHO
-http://bravepeople.co/
-http://cuberto.com/
-http://www.ostrolucky.com/en 8 TABLE BOIS
-http://counterclimate.converse.com/ video modifiable
-http://swissarmyman.com/ interaction clavier
-http://bilan-trends2016.heed.agency/ ANIMATION A VOIR
-http://www.not-studio.com/ (simple layout inspiration)
-https://www.biig.fr/ (a lot of animation)
-https://www.waaark.com realisation de site web bien connu
-http://www.durimel.io/ 9***********************
-http://www.ludmillamaury.com/
-http://pomerleau.ca/
-http://vallierbistro.com/en/
-https://richard.gs
-http://www.duhaihang.com/ OPEN GL
-http://www.mstq.io SIMPLE BUT COOL
-https://bonhomme.lol/
+<h3>WEBSITE SELECTION / AWARDS</h3>
+<p><a href="https://onepagelove.com/">https://onepagelove.com/</a><br>
+<a href="http://www.awwwards.com/">http://www.awwwards.com/</a><br>
+<a href="http://www.cssdesignawards.com/">http://www.cssdesignawards.com/</a><br>
+<a href="http://www.thefwa.com/">http://www.thefwa.com/</a><br>
+<a href="http://www.csswinner.com/">http://www.csswinner.com/</a><br>
+<a href="http://www.webbyawards.com/">http://www.webbyawards.com/</a><br>
+<a href="https://www.csslight.com">https://www.csslight.com</a><br>
+<a href="http://cssreel.com">http://cssreel.com</a><br>
+<a href="http://ux-design-awards.com/">http://ux-design-awards.com/</a><br>
+<a href="http://www.lesappawards.fr/">http://www.lesappawards.fr/</a><br>
+<a href="http://freshdesign.io">http://freshdesign.io</a><br>
+<a href="http://www.uxdesigner.top">http://www.uxdesigner.top</a>  </p>
+<h3>The most beautifull websites</h3>
+<p><a href="http://dragone.com/en">http://dragone.com/en</a><br>
+<a href="https://thevanishinggame.wellstoried.com/">https://thevanishinggame.wellstoried.com/</a><br>
+<a href="http://www.jesuisunicq.com/">http://www.jesuisunicq.com/</a><br>
+<a href="https://kadk.dk/en/kadk">https://kadk.dk/en/kadk</a><br>
+<a href="https://mvmt.org/#">https://mvmt.org/#</a><br>
+<a href="http://drurybuildings.com/">http://drurybuildings.com/</a><br>
+<a href="http://calligraphyongirls.com/">http://calligraphyongirls.com/</a><br>
+<a href="http://christmasexperiments.com">http://christmasexperiments.com</a><br>
+<a href="http://listart.mit.edu/">http://listart.mit.edu/</a><br>
+<a href="http://huppe-studio.com">http://huppe-studio.com</a>  <strong>*</strong><br>
+<a href="http://melanie-f.com">http://melanie-f.com</a><br>
+<a href="http://mabeat.tv">http://mabeat.tv</a>   <strong>***</strong><br>
+<a href="http://www.echoesoftsunami.com/">http://www.echoesoftsunami.com/</a><br>
+<a href="http://gifmylive.arte.tv/fr">http://gifmylive.arte.tv/fr</a><br>
+<a href="http://www.freresdencre.com/">http://www.freresdencre.com/</a><br>
+<a href="http://www.acnplwgl.com/#!/worm-kinematics">http://www.acnplwgl.com/#!/worm-kinematics</a><br>
+<a href="http://www.galvanmobili.it">http://www.galvanmobili.it</a><br>
+<a href="http://www.lubiam.it/">http://www.lubiam.it/</a><br>
+<a href="http://www.trippeo.com/">http://www.trippeo.com/</a><br>
+<a href="http://melanie-f.com/fr/">http://melanie-f.com/fr/</a><br>
+<a href="http://www.lapierrequitourne.com/">http://www.lapierrequitourne.com/</a><br>
+<a href="http://www.trippeo.com/">http://www.trippeo.com/</a><br>
+<a href="https://www.airbnb.fr/map">https://www.airbnb.fr/map</a><br>
+<a href="http://www.mathiassterner.com/about">http://www.mathiassterner.com/about</a><br>
+<a href="http://vo2-group.com">http://vo2-group.com</a><br>
+<a href="http://fitness.reebok.fr/be-more-human/#/home">http://fitness.reebok.fr/be-more-human/#/home</a><br>
+<a href="http://moodboard-film.de/">http://moodboard-film.de/</a><br>
+<a href="http://mattbarnesenterprises.com/">http://mattbarnesenterprises.com/</a><br>
+<a href="http://www.themarmalade.com/">http://www.themarmalade.com/</a><br>
+<a href="http://www.kroyyork.ru/">http://www.kroyyork.ru/</a><br>
+<a href="http://moodboard-film.de/">http://moodboard-film.de/</a><br>
+<a href="http://www.hellothierry.com/">http://www.hellothierry.com/</a><br>
+<a href="http://houseofborel.com/#/">http://houseofborel.com/#/</a><br>
+<a href="http://urban-walks.com/#slides">http://urban-walks.com/#slides</a>   >> CALL TO ACTION<br>
+<a href="http://www.masitupungato.com/">http://www.masitupungato.com/</a><br>
+<a href="http://odkryj.bialystok.pl/pl">http://odkryj.bialystok.pl/pl</a><br>
+<a href="https://inbeeld.kpn.com/mrt-2015/cover">https://inbeeld.kpn.com/mrt-2015/cover</a><br>
+<a href="http://level-barvikha.ru/en/">http://level-barvikha.ru/en/</a><br>
+<a href="http://www.anakin.co/en">http://www.anakin.co/en</a><br>
+<a href="https://getbeagle.co/">https://getbeagle.co/</a><br>
+<a href="http://www.etq-amsterdam.com/">http://www.etq-amsterdam.com/</a><br>
+<a href="http://www.relayme.be/">http://www.relayme.be/</a><br>
+<a href="http://www.lamourfou.be/fr">http://www.lamourfou.be/fr</a><br>
+<a href="http://canvas.grolsch.com/400">http://canvas.grolsch.com/400</a><br>
+<a href="http://golfman.ashworthgolf.com/bandon/approach">http://golfman.ashworthgolf.com/bandon/approach</a><br>
+<a href="http://letempsduntrajet.fr/">http://letempsduntrajet.fr/</a><br>
+<a href="http://typetodesign.com/">http://typetodesign.com/</a><br>
+<a href="http://typo.polona.pl/en/">http://typo.polona.pl/en/</a><br>
+<a href="http://www.winshipwealth.com/#winship-offices">http://www.winshipwealth.com/#winship-offices</a>   &#x3C; 7.5<br>
+<a href="http://www.peuterey.it/">http://www.peuterey.it/</a>     &#x3C; 7.5<br>
+<a href="http://education.laglaceetleciel.com/">http://education.laglaceetleciel.com/</a>   >8.4<br>
+<a href="http://www.alessandradetomaso.com/">http://www.alessandradetomaso.com/</a><br>
+<a href="http://aiaiai.dk/">http://aiaiai.dk/</a>               jolie cadre dark<br>
+<a href="http://www.panic.lv/en/">http://www.panic.lv/en/</a>     layout incliné<br>
+<a href="http://www.tryit-youmightlikeit.co.uk/">http://www.tryit-youmightlikeit.co.uk/</a>    button enter border anim + pick up date of brith<br>
+<a href="http://www.habib-fadel.com">http://www.habib-fadel.com</a>   gallerie peinture artiste<br>
+<a href="http://epicmagazine.com/arab-spring-break/">http://epicmagazine.com/arab-spring-break/</a><br>
+<a href="http://dansmonsac.ca/">http://dansmonsac.ca/</a>   &#x3C; sac meuf contre sida<br>
+<a href="http://www.josephaavoue.com">http://www.josephaavoue.com</a><br>
+<a href="http://www.palzileri.com/">http://www.palzileri.com/</a>              &#x3C;7.9<br>
+<a href="http://mountain.quechua.com/lookbook-spring-summer-15/">http://mountain.quechua.com/lookbook-spring-summer-15/</a>                    &#x3C; 7.9<br>
+<a href="http://www.cameronsworld.net/">http://www.cameronsworld.net/</a>             &#x3C;7.9<br>
+<a href="http://blog.hubspot.com/marketing/best-website-designs-list">http://blog.hubspot.com/marketing/best-website-designs-list</a><br>
+<a href="https://spotify-tasterewind.com/">https://spotify-tasterewind.com/</a> &#x3C; 7.4<br>
+adwyse.de<br>
+<a href="http://www.mugakofestival.com">http://www.mugakofestival.com</a><br>
+innerspacevr.com/  7.5<br>
+<a href="http://www.kikk.be/2015">http://www.kikk.be/2015</a> 7.5<br>
+<a href="http://www.palzileri.com/">http://www.palzileri.com/</a><br>
+<a href="http://weareroyale.com/#/">http://weareroyale.com/#/</a><br>
+<a href="http://mightynice.com.au">http://mightynice.com.au</a><br>
+<a href="http://newheights.longwoodgardens.org/#/">http://newheights.longwoodgardens.org/#/</a> &#x3C;7.5<br>
+<a href="http://www.62models.com/">http://www.62models.com/</a>  &#x3C;7.5<br>
+<a href="http://bigbangthemes.net/Wordie_WP/">http://bigbangthemes.net/Wordie_WP/</a><br>
+<a href="http://www.onthegrid.city/">http://www.onthegrid.city/</a><br>
+<a href="http://www.62models.com/">http://www.62models.com/</a><br>
+www.johos.at    &#x3C;&#x3C; 7.6<br>
+<a href="http://codedoodl.es/">http://codedoodl.es/</a> > 7.5<br>
+<a href="http://www.revolution.pn/">http://www.revolution.pn/</a><br>
+<a href="http://www.mrassociates.org/">http://www.mrassociates.org/</a><br>
+<a href="http://www.stand4humanrights.com/">http://www.stand4humanrights.com/</a><br>
+www.carandache.com<br>
+<a href="http://www.lnknits.com/">http://www.lnknits.com/</a><br>
+<a href="http://kotelett.info/">http://kotelett.info/</a>   ***<br>
+<a href="http://ovgrealestate.com/">http://ovgrealestate.com/</a><br>
+<a href="http://www.volkswagen-touran.fr/">http://www.volkswagen-touran.fr/</a><br>
+<a href="http://www.citco.it/">http://www.citco.it/</a><br>
+<a href="http://azmilano.com/">http://azmilano.com/</a><br>
+<a href="http://www.orchestredeparis.com/">http://www.orchestredeparis.com/</a> 8.4<br>
+<a href="http://www.dairyculture.ru/">http://www.dairyculture.ru/</a>  7.5<br>
+<a href="http://theforecaster-interactive.com/tour/">http://theforecaster-interactive.com/tour/</a>  7.5<br>
+<a href="http://bartaile.com/">http://bartaile.com/</a> 7.5<br>
+<a href="http://enso.readymag.com/architects-own-houses/11/">http://enso.readymag.com/architects-own-houses/11/</a>  8.23<br>
+baconclubhouse.no/en   7.5<br>
+<a href="http://acme-world.com/">http://acme-world.com/</a>   slow scroll + good style<br>
+<a href="http://www.because-recollection.com/">http://www.because-recollection.com/</a>   9.5<br>
+<a href="http://itsashapechristmas.co.uk/">http://itsashapechristmas.co.uk/</a><br>
+<a href="http://www.wloks.com/">http://www.wloks.com/</a><br>
+<a href="http://poc-sculpture.com/">http://poc-sculpture.com/</a><br>
+www.controlfilms.tv/<br>
+<a href="http://onirim.com/">http://onirim.com/</a>   VOLET  DEFILEMENT ECRAN<br>
+<a href="https://centurion-magazine.com/">https://centurion-magazine.com/</a> jolie<br>
+<a href="http://2016.makemepulse.com/">http://2016.makemepulse.com/</a> ANIMATION MAGNIFIQUE<br>
+<a href="http://www.beoplay.com/portraits#Intro">http://www.beoplay.com/portraits#Intro</a>  SPA AVEC PARALLAX<br>
+<a href="http://www.exo-skills.com/">http://www.exo-skills.com/</a>  INSPIRATION<br>
+<a href="http://www.shiftbrain.co.jp/">http://www.shiftbrain.co.jp/</a>   9<br>
+<a href="http://www.pygmy-elephant.com/">http://www.pygmy-elephant.com/</a><br>
+<a href="http://springsummer.dk">http://springsummer.dk</a><br>
+<a href="http://www.sevenhillswholefoods.com/">http://www.sevenhillswholefoods.com/</a><br>
+<a href="https://activetheory.net/">https://activetheory.net/</a> SNAP SCROLL REBOND<br>
+<a href="http://www.majorsavage.com/">http://www.majorsavage.com/</a> svg animation<br>
+<a href="http://www.giovannixu.com/">http://www.giovannixu.com/</a> PERFECT PORTFOLIO FOR PEGLT<br>
+<a href="http://www.samsung.com/us/explore/gear-vr/">http://www.samsung.com/us/explore/gear-vr/</a> GEAR VR ZOOM<br>
+<a href="https://spotify-valentines.com">https://spotify-valentines.com</a><br>
+<a href="http://checklandkindleysides.com/">http://checklandkindleysides.com/</a><br>
+<a href="http://dada-data.net/fr/">http://dada-data.net/fr/</a><br>
+<a href="http://www.magazine-mint.fr/">http://www.magazine-mint.fr/</a><br>
+<a href="http://warsze.polin.pl">http://warsze.polin.pl</a><br>
+<a href="http://www.visithumboldt.com">http://www.visithumboldt.com</a><br>
+<a href="https://www.ifly50.com">https://www.ifly50.com</a>  8 GALLERY PHOTO<br>
+<a href="http://sound-of-change.com/">http://sound-of-change.com/</a>  8.5<br>
+<a href="http://thelawofthejungle.com/">http://thelawofthejungle.com/</a><br>
+<a href="http://falter.madebywild.com/">http://falter.madebywild.com/</a> 8.5<br>
+<a href="http://www.studiomarani.it/en/">http://www.studiomarani.it/en/</a> 8<br>
+<a href="http://www.adidas.co.uk/climazone">http://www.adidas.co.uk/climazone</a> (tout en bas layout 3 colonne dynamique)<br>
+<a href="http://saintepaix.com/">http://saintepaix.com/</a>   barre vertical et horizontale (style LS)<br>
+<a href="http://www.melville-design.com/">http://www.melville-design.com/</a>	animation parallax<br>
+<a href="http://ony-france.com/">http://ony-france.com/</a> slide collection vetement</p>
+<h3>UX/DIGITAL PROFESIONNAL</h3>
+<p><a href="http://blogdummi.fr/developpement/15-sites-agences-web-de-reve/">http://blogdummi.fr/developpement/15-sites-agences-web-de-reve/</a></p>
+<p><a href="http://bonnemarque.se/#">http://bonnemarque.se/#</a><br>
+<a href="http://engzell.me/info/">http://engzell.me/info/</a><br>
+<a href="http://www.sa-studio.fr/">http://www.sa-studio.fr/</a><br>
+<a href="http://chulakov.com/">http://chulakov.com/</a><br>
+<a href="http://www.konform.com/">http://www.konform.com/</a><br>
+<a href="http://www.aquest.it/">http://www.aquest.it/</a><br>
+<a href="http://hellomonday.com/">http://hellomonday.com/</a><br>
+<a href="http://digitalisations.com/">http://digitalisations.com/</a><br>
+<a href="http://residence-mixte.com/">http://residence-mixte.com/</a><br>
+<a href="http://www.lahautesociete.com/">http://www.lahautesociete.com/</a><br>
+<a href="http://www.badassembly.com/">http://www.badassembly.com/</a><br>
+<a href="http://www.designeat.com">http://www.designeat.com</a><br>
+<a href="http://www.stash.fr/">http://www.stash.fr/</a><br>
+<a href="http://talkpr.com/">http://talkpr.com/</a><br>
+<a href="http://www.timbrack.de/">http://www.timbrack.de/</a><br>
+<a href="http://mashvp.com/">http://mashvp.com/</a>    &#x3C;>>> TOULOUSE<br>
+<a href="http://www.clicky.co.uk/">http://www.clicky.co.uk/</a><br>
+<a href="http://www.adoratorio.com/">http://www.adoratorio.com/</a><br>
+<a href="http://www.burn">http://www.burn</a><br>
+.com/ <strong><strong><strong><strong>****</strong></strong></strong></strong> SIMPLE DESIGN AGENCY<br>
+<a href="http://fixedagency.com">http://fixedagency.com</a><br>
+<a href="http://www.basicagency.com/">http://www.basicagency.com/</a><br>
+<a href="http://www.creativestyle.de/">http://www.creativestyle.de/</a><br>
+<a href="http://www.ninesixty.co.uk/">http://www.ninesixty.co.uk/</a><br>
+<a href="http://studiokraftwerk.com/">http://studiokraftwerk.com/</a><br>
+<a href="http://spacejunk.com/">http://spacejunk.com/</a><br>
+<a href="http://locomotive.ca/">http://locomotive.ca/</a> <strong><strong><strong><strong><strong>*</strong></strong></strong></strong></strong><br>
+<a href="http://www.jonathandacosta.com">http://www.jonathandacosta.com</a><br>
+<a href="http://www.tonyui.com/">http://www.tonyui.com/</a><br>
+<a href="http://www.blank.io/">http://www.blank.io/</a><br>
+<a href="http://hellomonday.com/">http://hellomonday.com/</a><br>
+<a href="http://www.ilovemy.de/">http://www.ilovemy.de/</a><br>
+<a href="http://www.lab21.gr/">http://www.lab21.gr/</a><br>
+<a href="http://humaan.com/">http://humaan.com/</a><br>
+<a href="http://mustafademirkent.com/">http://mustafademirkent.com/</a><br>
+<a href="http://madhankumar.me/">http://madhankumar.me/</a><br>
+<a href="http://republiqueagency.com/index-eng.html">http://republiqueagency.com/index-eng.html</a>    <strong><strong><strong><strong><strong><strong><strong>*</strong></strong></strong></strong></strong></strong></strong><br>
+<a href="http://www.pushhere.com/">http://www.pushhere.com/</a>      </p>
+<pre><code>   *******************
+</code></pre>
+<p><a href="http://www.borngroup.com/">http://www.borngroup.com/</a><br>
+<a href="http://www.mobydigg.de">http://www.mobydigg.de</a><br>
+<a href="http://neverbland.com">http://neverbland.com</a><br>
+<a href="http://www.ninesixty.co.uk/">http://www.ninesixty.co.uk/</a><br>
+<a href="http://laser.nyc/">http://laser.nyc/</a><br>
+<a href="http://www.littlegiant.co.nz/">http://www.littlegiant.co.nz/</a><br>
+<a href="http://www.impossible-bureau.com/">http://www.impossible-bureau.com/</a><br>
+<a href="http://drygital.com/">http://drygital.com/</a><br>
+<a href="http://www.mapcommunication.it">http://www.mapcommunication.it</a><br>
+<a href="http://fueled.com">http://fueled.com</a><br>
+<a href="http://robinjeanney.fr/">http://robinjeanney.fr/</a><br>
+<a href="http://www.rollstudio.co.uk/">http://www.rollstudio.co.uk/</a><br>
+<a href="http://www.aquest.it/">http://www.aquest.it/</a><br>
+<a href="http://readysetrocket.com/">http://readysetrocket.com/</a><br>
+<a href="http://brightbyte.co.uk">http://brightbyte.co.uk</a><br>
+<a href="http://rhythm.bestlooker.pro/">http://rhythm.bestlooker.pro/</a><br>
+<a href="http://urbaninfluence.com/">http://urbaninfluence.com/</a><br>
+<a href="http://kasperlaigaard.com/">http://kasperlaigaard.com/</a><br>
+<a href="http://www.timbrack.de/">http://www.timbrack.de/</a><br>
+<a href="http://www.mathiassterner.com/">http://www.mathiassterner.com/</a><br>
+<a href="http://ayamflow.fr/">http://ayamflow.fr/</a><br>
+<a href="http://melaniedaveid.com/">http://melaniedaveid.com/</a><br>
+<a href="http://demodern.com/">http://demodern.com/</a><br>
+<a href="http://www.wax-interactive.com/">http://www.wax-interactive.com/</a><br>
+<a href="http://vaalentin.github.io/2015/">http://vaalentin.github.io/2015/</a><br>
+<a href="http://melaniedaveid.com/">http://melaniedaveid.com/</a><br>
+<a href="http://www.cpbgroup.com">http://www.cpbgroup.com</a><br>
+<a href="https://www.digitaweb.com/">https://www.digitaweb.com/</a><br>
+<a href="http://www.ekito.fr/">http://www.ekito.fr/</a>  TLSE<br>
+<a href="http://legraphoir.com/">http://legraphoir.com/</a><br>
+<a href="https://diegoquintana.com/en">https://diegoquintana.com/en</a><br>
+<a href="http://flavinsky.com/home">http://flavinsky.com/home</a><br>
+<a href="http://w-v.co/">http://w-v.co/</a><br>
+<a href="http://simonfosterdesign.com/home/">http://simonfosterdesign.com/home/</a><br>
+<a href="http://www.taradash.ru">http://www.taradash.ru</a><br>
+<a href="http://www.duhaihang.com">http://www.duhaihang.com</a><br>
+<a href="http://www.andreysoloviev.net">http://www.andreysoloviev.net</a>  WEB DESIGN<br>
+<a href="http://brianhoffdesign.com">http://brianhoffdesign.com</a><br>
+<a href="http://svla.co">http://svla.co</a><br>
+<a href="http://www.florianwacker.de/en/">http://www.florianwacker.de/en/</a><br>
+<a href="http://www.vanschneider.com/">http://www.vanschneider.com/</a><br>
+<a href="http://www.werkstatt.fr/#/home">http://www.werkstatt.fr/#/home</a>     &#x3C; 7.9 atelier<br>
+<a href="http://antonandirene.com/">http://antonandirene.com/</a>     &#x3C; 7.8<br>
+<a href="http://www.paulineosmont.com/">http://www.paulineosmont.com/</a>   &#x3C; 7.5 source propre<br>
+<a href="http://www.nicolastarier.com/">http://www.nicolastarier.com/</a>  &#x3C; 7.5 source propre<br>
+<a href="http://www.petarstojakovic.net/">http://www.petarstojakovic.net/</a>    &#x3C; 8 don't be lazy and make your sh.t happen! but being one step ahead of the curve at all times<br>
+<a href="http://www.blkcnd.com/">http://www.blkcnd.com/</a> &#x3C; 7.2<br>
+<a href="http://www.legworkstudio.com">http://www.legworkstudio.com</a> &#x3C;7.8<br>
+<a href="http://activetheory.net">http://activetheory.net</a> &#x3C; layout incliné<br>
+<a href="http://thisisdk.com">http://thisisdk.com</a><br>
+<a href="http://www.evb.com/">http://www.evb.com/</a><br>
+<a href="http://maximecostes.fr/">http://maximecostes.fr/</a><br>
+<a href="http://weareroyale.com/#/">http://weareroyale.com/#/</a> *<strong>* SVG ANIM<br>
+<a href="http://www.fixedgroup.com/">http://www.fixedgroup.com/</a><br>
+<a href="http://www.webydo.com/">http://www.webydo.com/</a>   8.18<br>
+<a href="http://www.indicius.com/">http://www.indicius.com/</a><br>
+<a href="http://www.signesduquotidien.org/">http://www.signesduquotidien.org/</a>  &#x3C;7.5<br>
+<a href="http://panache.fr/">http://panache.fr/</a><br>
+<a href="http://pollenlondon.com/">http://pollenlondon.com/</a><br>
+<a href="http://www.thenerodesign.com/">http://www.thenerodesign.com/</a> 7.5 LOVE<br>
+<a href="http://www.greenwoodcampbell.com/">http://www.greenwoodcampbell.com/</a> AGENCY<br>
+<a href="http://www.deutser.com/services">http://www.deutser.com/services</a>  AGENCY<br>
+<a href="http://www.sweetpunk.com/">http://www.sweetpunk.com/</a><br>
+<a href="http://www.julienrenvoye.fr/">http://www.julienrenvoye.fr/</a><br>
+<a href="http://nlee.ru/en/">http://nlee.ru/en/</a><br>
+<a href="http://riccardomarconato.it/about">http://riccardomarconato.it/about</a>   8 JAIME<br>
+<a href="https://dpdk.com/">https://dpdk.com/</a><br>
+<a href="http://www.junior.io/">http://www.junior.io/</a><br>
+<a href="http://ueno.co/">http://ueno.co/</a><br>
+<a href="http://redcollar.digital/">http://redcollar.digital/</a><br>
+<a href="http://minnim.tv/en">http://minnim.tv/en</a><br>
+<a href="http://lagier-kevin.com/#!/">http://lagier-kevin.com/#!/</a>  8 IMPRESSIONANT<br>
+<a href="http://stevenmengin.com/">http://stevenmengin.com/</a> 8 OPEN GL EXAMPLE<br>
+<a href="http://samsy.ninja/">http://samsy.ninja/</a> 8 OPEN GL + A SUIVRE<br>
+<a href="http://sonorans-valley.com/">http://sonorans-valley.com/</a> A TESTER<br>
+<a href="https://studiorotate.com/">https://studiorotate.com/</a> 8.5 A TEST<br>
+<a href="http://www.hochburg.net/en/">http://www.hochburg.net/en/</a> 8  A TEST<br>
+<a href="http://www.nurturedigital.com/">http://www.nurturedigital.com/</a> A TEST<br>
+<a href="http://www.poigneedemainvirile.com/">http://www.poigneedemainvirile.com/</a><br>
+<a href="http://hengpatrick.fr/">http://hengpatrick.fr/</a>  HETIC/CANVAS/WEBGL<br>
+<a href="http://robinmastromarino.com/">http://robinmastromarino.com/</a> HETIC/CANVAS/WEBGL/VUEJS/PIXIJS (STYLE MENUSLIDER)<br>
+<a href="http://www.fcinq.com/">http://www.fcinq.com/</a><br>
+<a href="http://bundy.madebywild.com/">http://bundy.madebywild.com/</a> 9<br>
+<a href="http://xavierbourdil.com/">http://xavierbourdil.com/</a> 8<br>
+<a href="http://www.patriciablanchet.com/">http://www.patriciablanchet.com/</a> 8<br>
+<a href="https://cavalierchallenge.com/">https://cavalierchallenge.com/</a><br>
+<a href="http://www.plasticbcn.com/">http://www.plasticbcn.com/</a><br>
+<a href="http://maevabarriere.com/">http://maevabarriere.com/</a><br>
+<a href="http://pro.boombotix.com/">http://pro.boombotix.com/</a><br>
+<a href="http://resn.co.nz/#">http://resn.co.nz/#</a>			9 PSYCHO<br>
+<a href="http://bravepeople.co/">http://bravepeople.co/</a><br>
+<a href="http://cuberto.com/">http://cuberto.com/</a><br>
+<a href="http://www.ostrolucky.com/en">http://www.ostrolucky.com/en</a> 8 TABLE BOIS<br>
+<a href="http://counterclimate.converse.com/">http://counterclimate.converse.com/</a> video modifiable<br>
+<a href="http://swissarmyman.com/">http://swissarmyman.com/</a> interaction clavier<br>
+<a href="http://bilan-trends2016.heed.agency/">http://bilan-trends2016.heed.agency/</a> ANIMATION A VOIR<br>
+<a href="http://www.not-studio.com/">http://www.not-studio.com/</a> (simple layout inspiration)<br>
+<a href="https://www.biig.fr/">https://www.biig.fr/</a> (a lot of animation)<br>
+<a href="https://www.waaark.com">https://www.waaark.com</a> realisation de site web bien connu<br>
+<a href="http://www.durimel.io/">http://www.durimel.io/</a> 9<strong><strong><strong><strong><strong>*</strong></strong></strong></strong></strong></strong><br>
+<a href="http://www.ludmillamaury.com/">http://www.ludmillamaury.com/</a><br>
+<a href="http://pomerleau.ca/">http://pomerleau.ca/</a><br>
+<a href="http://vallierbistro.com/en/">http://vallierbistro.com/en/</a><br>
+<a href="https://richard.gs">https://richard.gs</a><br>
+<a href="http://www.duhaihang.com/">http://www.duhaihang.com/</a> OPEN GL<br>
+<a href="http://www.mstq.io">http://www.mstq.io</a> SIMPLE BUT COOL<br>
+<a href="https://bonhomme.lol/">https://bonhomme.lol/</a></p>

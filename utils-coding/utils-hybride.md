@@ -1,3 +1,2 @@
-
-https://medium.freecodecamp.com/how-to-build-cross-platform-mobile-apps-using-nothing-more-than-a-json-markup-f493abec1873#.cm6vovtx9
-https://github.com/alflennik/au7
+<p><a href="https://medium.freecodecamp.com/how-to-build-cross-platform-mobile-apps-using-nothing-more-than-a-json-markup-f493abec1873#.cm6vovtx9">https://medium.freecodecamp.com/how-to-build-cross-platform-mobile-apps-using-nothing-more-than-a-json-markup-f493abec1873#.cm6vovtx9</a><br>
+<a href="https://github.com/alflennik/au7">https://github.com/alflennik/au7</a></p>

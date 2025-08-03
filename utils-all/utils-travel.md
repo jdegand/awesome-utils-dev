@@ -1,136 +1,101 @@
-<h1>RELOCATION</h1>
-<p><a href="https://www.papernest.com/">https://www.papernest.com/</a></p>
-<h2>COMPARE</h2>
-<p><a href="https://www.expatistan.com">https://www.expatistan.com</a><br>
-<a href="https://nomadlist.com">https://nomadlist.com</a></p>
-<h2>EUROPE</h2>
-<p><a href="https://assets.kpmg/content/dam/kpmg/lu/pdf/salary-comparisons-survey-2018.pdf">
-salary-comparisons-survey-2018.pdf
-</a></p>
-<p><a href="https://entreprise.pole-emploi.fr/cout-salarie/" target="_blank">fr/cout-salarie</p>
-<p><a href="https://europa.eu/youreurope/citizens/work/taxes/income-taxes-abroad/">https://europa.eu/youreurope/citizens/work/taxes/income-taxes-abroad/</a><br>
-<a href="https://www.interrail.eu/fr/pass-interrail/global-pass">https://www.interrail.eu/fr/pass-interrail/global-pass</a></p>
-</p>
-
-<h2>LANGS</h2>
-https://languagelearningwithnetflix.com
-
-<h2>LODGING</h2>
-<p>hostelsworld+apparthotel+couchsurfing+airbnb+yestudent+booking</p>
-- https://www.youthhostel.ch/fr/
-- https://hotelcard.ch/en
-
-<h2>LINKS</h2>
-<p><a href="http://www.petitstripsentreamis.com/">http://www.petitstripsentreamis.com/</a><br>
-<a href="https://www.loisirsencheres.com/all/">https://www.loisirsencheres.com/all/</a><br>
-Le même en mieuw + Vizeat + Jwebi<br>
-Shutterstock-fotolia-dreamstime</p>
-<h2>EXPATS</h2>
-- https://www.clubfranceinternational.com/le-cfi/
-<p><a href="https://www.internations.org/expat-insider/2016/the-best-and-worst-places-for-expats">https://www.internations.org/expat-insider/2016/the-best-and-worst-places-for-expats</a><br>
-<a href="https://www.leapin.eu">https://www.leapin.eu</a> + Estonian e-resident! </p>
-<h2>TOOLS</h2>
-<p><a href="https://www.amazon.fr/dp/B075FS8FPF/ref=asc_df_B075FS8FPF49522308/">https://www.amazon.fr/dp/B075FS8FPF/ref=asc_df_B075FS8FPF49522308/</a><br>
-<a href="https://www.straydeal.com/products/anti-theft-backpack">https://www.straydeal.com/products/anti-theft-backpack</a></p>
-<h2>CANADA</h2>
-<p>AVE is only valid for short periods (maximum 3 months each time but available for 5 years).<br>
-Otherwise there is the PVT which is valid for 24 months for french people.<br>
-Otherwise i have to apply for a working licence (visa)</p>
-<p>I am not familiar with the process, let me know what do you think.</p>
-<p>AVE: <a href="https://www.autorisation-voyage.fr/duree-temps-validite-ave.html">https://www.autorisation-voyage.fr/duree-temps-validite-ave.html</a><br>
-PVT: <a href="https://pvtistes.net/dossiers/vacances-travail-canada-working-holiday-canada/">https://pvtistes.net/dossiers/vacances-travail-canada-working-holiday-canada/</a><br>
-VISA: <a href="https://www.canada.ca/fr/immigration-refugies-citoyennete/services/travailler-canada/permis.html">https://www.canada.ca/fr/immigration-refugies-citoyennete/services/travailler-canada/permis.html</a></p>
-<h2>THAILAND</h2>
-<p><a href="https://www.youtube.com/watch?v=v61xbAJoQVI">https://www.youtube.com/watch?v=v61xbAJoQVI</a> LIVING UNDER $600 IN THAILAND | CHIANG MAI COST OF LIVING GUIDE</p>
-
-## Tools: internet
-- https://www.ubigi.com/
-- https://www.dentwireless.com/
-
-## Tools: sleep
-- https://www.airbnb.com
-- http://www.hostels.com
-- https://www.couchsurfing.org
-- http://motherboard.vice.com/fr/read/quand-les-espaces-de-coworking-se-transforment-en-dortoirs
-
-## Tools: discover
-- https://www.atlasobscura.com/
-
-## Tools: Flight
-- https://airlinelist.com/
-
-## Tools: Car 
-- https://carmarket.ch/fr
-- https://www.carify.com/
-- https://www.carvolution.com/
-
-## Tools: Social
-- https://www.weroad.fr
-
-## Swiss
-- https://gomore.ch/
-- https://map.geo.admin.ch/
-- https://hotelcard.ch/en
-- https://www.les-bisses-du-valais.ch/fr/
-- https://www.blick.ch/fr/well/a-tester-en-famille-ces-5-magnifiques-balades-en-valais-vous-feront-aimer-lhiver-id19216253.html
-- https://ulysse.com/news/voyager-en-train-panoramique-a-travers-la-suisse-top-5-des-itineraires-a-decouvrir
-
-## Italy
-- https://murlo.com/
-- https://nestitaly.com/experiences/
-- https://fr.m.wikipedia.org/wiki/Santa_Magdalena_(Italie)
-- https://ulysse.com/news/ile-italienne-havre-de-paix-retraite-tranquille
-
-## Festival
-- https://www.japaneuch.ch neuchatel (end of june)
-- https://www.burning-mountain.ch swiss german (end of june)
-- https://evenements.geneve.ch/musiquesenete/ geneve (july, august)
-- https://www.verbierfestival.com/ verbier (july, august)
-- https://sionsouslesetoiles.ch/ sion (july)
-- https://moonandstars.ch locarno (july)
-- https://www.locarnofestival.ch/ locarno (august)
-- https://pizpalufestival.ch/ geneve (august)
-- https://labelsuisse.ch/ lausanne (september)
-
-## Best places
-
-- croatie > noa beach club
-- croatie > Hvar Island, Dalmatian Coast.
-- Panama City
-- parc montjuic barcelone,
-- Cala Aiguablava. Begur.
-- Palma de Majorque : playa de S'Amarador
-- macau grand lisboa
-- Niagara Falls Canada
-- Angel Falls in Venezuela
-- IGUAZÚ!!: Argentina
-- Venice , Italy
-- Lipari Italy,
-- porticello Italy
-- Sandorini Greece *******
-- hasos Island , Greece
-- Santorini Island, Greece
-- Hallstatt, Austria
-- Furore Amalfi Italy!
-- Lake Como, Italy
-- Santorini, Greece
-- Tagaytay Highlands, Philippines
-- Rio, Brazil
-- Islamorada, a "Village of Islands," is an incorporated village in Monroe County, Florida, United States
-- Whitsunday Islands National Park Australia
-- Ile de malte
-- Tenerife
-- Lofoten
-- Belmond Hotel splendido Italy (Genes)
-- Hurtigruten Norway
-- laucala Island Fiji
-- Alberta, ?#?Canada? !
-- Ice hotel North Sweden
-- Kite Beach. Dubai
-- indonésie sur l'île de Lombok. >deloustal >
-- euschwanstein Castle - Hill castle in Schwangau, Germany
-- Natural Beauty Of Alberta, Canada.
-- Maldives , Wonderful
-- Westin Maui Resort & Spa Hawaii
-- Whitehaven Beach, Australia!
-- koala lampur, Malaysia
+<h2>Tools: internet</h2>
+<ul>
+<li><a href="https://www.ubigi.com/">https://www.ubigi.com/</a></li>
+<li><a href="https://www.dentwireless.com/">https://www.dentwireless.com/</a></li>
+</ul>
+<h2>Tools: sleep</h2>
+<ul>
+<li><a href="https://www.airbnb.com">https://www.airbnb.com</a></li>
+<li><a href="http://www.hostels.com">http://www.hostels.com</a></li>
+<li><a href="https://www.couchsurfing.org">https://www.couchsurfing.org</a></li>
+<li><a href="http://motherboard.vice.com/fr/read/quand-les-espaces-de-coworking-se-transforment-en-dortoirs">http://motherboard.vice.com/fr/read/quand-les-espaces-de-coworking-se-transforment-en-dortoirs</a></li>
+</ul>
+<h2>Tools: discover</h2>
+<ul>
+<li><a href="https://www.atlasobscura.com/">https://www.atlasobscura.com/</a></li>
+</ul>
+<h2>Tools: Flight</h2>
+<ul>
+<li><a href="https://airlinelist.com/">https://airlinelist.com/</a></li>
+</ul>
+<h2>Tools: Car</h2>
+<ul>
+<li><a href="https://carmarket.ch/fr">https://carmarket.ch/fr</a></li>
+<li><a href="https://www.carify.com/">https://www.carify.com/</a></li>
+<li><a href="https://www.carvolution.com/">https://www.carvolution.com/</a></li>
+</ul>
+<h2>Tools: Social</h2>
+<ul>
+<li><a href="https://www.weroad.fr">https://www.weroad.fr</a></li>
+</ul>
+<h2>Swiss</h2>
+<ul>
+<li><a href="https://gomore.ch/">https://gomore.ch/</a></li>
+<li><a href="https://map.geo.admin.ch/">https://map.geo.admin.ch/</a></li>
+<li><a href="https://hotelcard.ch/en">https://hotelcard.ch/en</a></li>
+<li><a href="https://www.les-bisses-du-valais.ch/fr/">https://www.les-bisses-du-valais.ch/fr/</a></li>
+<li><a href="https://www.blick.ch/fr/well/a-tester-en-famille-ces-5-magnifiques-balades-en-valais-vous-feront-aimer-lhiver-id19216253.html">https://www.blick.ch/fr/well/a-tester-en-famille-ces-5-magnifiques-balades-en-valais-vous-feront-aimer-lhiver-id19216253.html</a></li>
+<li><a href="https://ulysse.com/news/voyager-en-train-panoramique-a-travers-la-suisse-top-5-des-itineraires-a-decouvrir">https://ulysse.com/news/voyager-en-train-panoramique-a-travers-la-suisse-top-5-des-itineraires-a-decouvrir</a></li>
+</ul>
+<h2>Italy</h2>
+<ul>
+<li><a href="https://murlo.com/">https://murlo.com/</a></li>
+<li><a href="https://nestitaly.com/experiences/">https://nestitaly.com/experiences/</a></li>
+<li><a href="https://fr.m.wikipedia.org/wiki/Santa_Magdalena_(Italie">https://fr.m.wikipedia.org/wiki/Santa_Magdalena_(Italie</a>)</li>
+<li><a href="https://ulysse.com/news/ile-italienne-havre-de-paix-retraite-tranquille">https://ulysse.com/news/ile-italienne-havre-de-paix-retraite-tranquille</a></li>
+</ul>
+<h2>Festival</h2>
+<ul>
+<li><a href="https://www.japaneuch.ch">https://www.japaneuch.ch</a> neuchatel (end of june)</li>
+<li><a href="https://www.burning-mountain.ch">https://www.burning-mountain.ch</a> swiss german (end of june)</li>
+<li><a href="https://evenements.geneve.ch/musiquesenete/">https://evenements.geneve.ch/musiquesenete/</a> geneve (july, august)</li>
+<li><a href="https://www.verbierfestival.com/">https://www.verbierfestival.com/</a> verbier (july, august)</li>
+<li><a href="https://sionsouslesetoiles.ch/">https://sionsouslesetoiles.ch/</a> sion (july)</li>
+<li><a href="https://moonandstars.ch">https://moonandstars.ch</a> locarno (july)</li>
+<li><a href="https://www.locarnofestival.ch/">https://www.locarnofestival.ch/</a> locarno (august)</li>
+<li><a href="https://pizpalufestival.ch/">https://pizpalufestival.ch/</a> geneve (august)</li>
+<li><a href="https://labelsuisse.ch/">https://labelsuisse.ch/</a> lausanne (september)</li>
+</ul>
+<h2>Best places</h2>
+<ul>
+<li>croatie > noa beach club</li>
+<li>croatie > Hvar Island, Dalmatian Coast.</li>
+<li>Panama City</li>
+<li>parc montjuic barcelone,</li>
+<li>Cala Aiguablava. Begur.</li>
+<li>Palma de Majorque : playa de S'Amarador</li>
+<li>macau grand lisboa</li>
+<li>Niagara Falls Canada</li>
+<li>Angel Falls in Venezuela</li>
+<li>IGUAZÚ!!: Argentina</li>
+<li>Venice , Italy</li>
+<li>Lipari Italy,</li>
+<li>porticello Italy</li>
+<li>Sandorini Greece <strong>***</strong></li>
+<li>hasos Island , Greece</li>
+<li>Santorini Island, Greece</li>
+<li>Hallstatt, Austria</li>
+<li>Furore Amalfi Italy!</li>
+<li>Lake Como, Italy</li>
+<li>Santorini, Greece</li>
+<li>Tagaytay Highlands, Philippines</li>
+<li>Rio, Brazil</li>
+<li>Islamorada, a "Village of Islands," is an incorporated village in Monroe County, Florida, United States</li>
+<li>Whitsunday Islands National Park Australia</li>
+<li>Ile de malte</li>
+<li>Tenerife</li>
+<li>Lofoten</li>
+<li>Belmond Hotel splendido Italy (Genes)</li>
+<li>Hurtigruten Norway</li>
+<li>laucala Island Fiji</li>
+<li>Alberta, ?#?Canada? !</li>
+<li>Ice hotel North Sweden</li>
+<li>Kite Beach. Dubai</li>
+<li>indonésie sur l'île de Lombok. >deloustal ></li>
+<li>euschwanstein Castle - Hill castle in Schwangau, Germany</li>
+<li>Natural Beauty Of Alberta, Canada.</li>
+<li>Maldives , Wonderful</li>
+<li>Westin Maui Resort &#x26; Spa Hawaii</li>
+<li>Whitehaven Beach, Australia!</li>
+<li>koala lampur, Malaysia</li>
+</ul>
