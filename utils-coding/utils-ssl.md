@@ -1,6 +1,3 @@
-
-
 ## CHECK CERTIFICAT
 
-https://www.digicert.com/help/
-
+<https://www.digicert.com/help/>

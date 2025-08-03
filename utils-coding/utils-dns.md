@@ -1,2 +1,1 @@
-
-https://staging-jeangalea.kinsta.com/buy-sell-websites/
+<https://staging-jeangalea.kinsta.com/buy-sell-websites/>

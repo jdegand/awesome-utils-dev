@@ -1,29 +1,37 @@
-
 ## OFFICIAL
-https://tron.network/
+
+<https://tron.network/>
 
 ## NEWS
-https://medium.com/tron-foundation
+
+<https://medium.com/tron-foundation>
 
 ## SCAN
-https://tronscan.org/
+
+<https://tronscan.org/>
 
 ## WALLETS
-https://www.tronlink.org/
-https://tron.watch/
+
+<https://www.tronlink.org/>  
+<https://tron.watch/>
 
 ## DAPPS
-https://trondapp.org/
+
+<https://trondapp.org/>
 
 ## DEX
-https://trontrade.io/
+
+<https://trontrade.io/>
 
 ## SOCIAL
-https://tronsr.org/
+
+<https://tronsr.org/>
 
 ## OTHERS
-https://sesameseed.org
+
+<https://sesameseed.org>
 
 ## STAKING
-https://www.wink.org/
-https://tron.cryptovegas.net/
+
+<https://www.wink.org/>  
+<https://tron.cryptovegas.net/>
